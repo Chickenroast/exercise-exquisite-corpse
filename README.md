@@ -17,3 +17,11 @@ Lola a trouvé une vieille carte au fond du grenier de sa grand-mère. La carte 
 Anna rassemble son courage, enfilant une veste légère et prenant la vieille carte dans sa main tremblante. Elle sait que cette aventure pourrait la conduire vers l'inconnu, mais son désir de découvrir le mystère est plus fort que jamais. Elle prend une profonde inspiration, sentant l'excitation monter en elle, et s'éloigne de la maison en direction de la destination marquée sur la carte, laissant derrière elle le confort de la vie quotidienne.
 
 Alors qu'elle s'aventure plus profondément dans la forêt dense, Anna commence à remarquer des signes étranges et des symboles mystérieux qui semblent la guider. Chaque pas la rapproche de la croix rouge sur la carte, mais elle se demande ce qui l'attend à cet endroit secret. L'air est empli de mystère et d'anticipation, et Anna sait qu'elle est sur le point de vivre une aventure qui changera sa vie à jamais...
+
+Bien sûr, voici un petit texte en français :
+
+"Le soleil brillait dans le ciel, répandant sa douce chaleur sur la ville endormie. Les oiseaux gazouillaient joyeusement, annonçant l'arrivée d'une nouvelle journée. Les rues étaient calmes, baignées dans une tranquillité apaisante."
+
+
+
+
